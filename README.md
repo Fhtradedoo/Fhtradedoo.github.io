@@ -45,36 +45,23 @@
 
 ## [Donji delovi trenerki](https://www.facebook.com/share/eQTZJWJ5oqBQLUQ5/)
 
-
-
 # PAMUČNE-LIKRA BLUZE DUG RUKAV
 
 ## [Majice dug rukav](https://www.facebook.com/share/etFKukZdd6GFiQC7/)
-
-
-
 
 # HALJINE
 
 ## [Haljine krem klasa jesen zima](https://www.facebook.com/share/kGDfMWtqy1Tb7cSX/)
 
-## [Krem klasa tankih jakni prsluka i mantila ](https://www.facebook.com/share/NdGvEgHThgzLjNna/)
-
-
-
-
-
 ## [Haljine leto](https://www.facebook.com/share/Cp2dxTEyh4rYRtgt/)
-
 
 # JAKNE PRSLUCI SAKOI
 
 ## [Softshell jakne](https://www.facebook.com/share/XYQ94oNT1hNbZ5Xe/)
 
+## [Krem klasa tankih jakni prsluka i mantila ](https://www.facebook.com/share/NdGvEgHThgzLjNna/)
+
 ## [Prsluci](https://www.facebook.com/share/2zCdWyF91hkeS5ry/)
-
-
-
 
 ## [Ženski sakoi](https://www.facebook.com/share/nBS7PEDXUxw6zZf5/)
 
@@ -88,9 +75,7 @@
 
 ## [Majice kratak rukav](https://www.facebook.com/share/fYJixKsoo1ntzZNa/)
 
-
 # DŽEMPERI
-
 
 # PANTALONE FARMERICE ŠALVARE HELANKE I ŠORCEVI 
 
