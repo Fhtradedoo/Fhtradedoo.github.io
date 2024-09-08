@@ -8,6 +8,6 @@
 
 ## [Engleski jesenji krem miks ženski](https://www.facebook.com/share/7RjqoyHUUeV4SFhv/)
 
-## [Engleska extra klasa jesen zima ženski mix]((https://www.facebook.com/share/V3dAUF5Dtn8FG4nx/)
+## [Engleska extra klasa jesen zima ženski mix](https://www.facebook.com/share/V3dAUF5Dtn8FG4nx/)
 
 ## [Engleska extra klasa jesen zima muški mix](https://www.facebook.com/share/dpu754pTCCsHcpka/)
