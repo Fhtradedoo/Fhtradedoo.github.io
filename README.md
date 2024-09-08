@@ -6,4 +6,6 @@
 
 # NAPOMENA Nije moguća kupovina na komad, biranje ili deo džaka, minimum za kupiti je ceo džak, nismo maloprodaja već veleprodaja
 
-## [Jesenji krem miks ženski](https://www.facebook.com/share/7RjqoyHUUeV4SFhv/)
+## [Engleski jesenji krem miks ženski](https://www.facebook.com/share/7RjqoyHUUeV4SFhv/)
+
+## [Engleska extra klasa jesen zima](https://www.facebook.com/share/7RjqoyHUUeV4SFhv/)
